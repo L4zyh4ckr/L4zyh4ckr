@@ -1,5 +1,8 @@
 # 💫 About Me:
-Ethical Hacker | EC-Council Certified | Cisco Cyber Security Specialist | Passionate about cybersecurity, ethical hacking,& tech.Open to ideas and collaboration
+Ethical Hacker | 
+EC-Council Certified | 
+Cisco Cyber Security Specialist |
+Passionate about cybersecurity, ethical hacking,& tech.Open to ideas and collaboration
 
 
 ## 🌐 Socials:
